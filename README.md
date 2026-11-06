@@ -1,8 +1,8 @@
 ## Hi there 👋
-Welcome to my GitHub profile! I am a middle school student who loves tech :>
+Welcome to my GitHub profile!😛 I am a middle school student who is intrested tech. I am currently trying to learn how to code html :>
  # 🎮 About Me:
-*  **Favorite Games:** Roblox
-*  **Hobbies:** Drawing, reading, and listening to music
-*  **Favorite Subject in School:** Science and then anything that relates to tech
-
+*  **Favorite Games:** Roblox, 
+*  **Hobbies:** Drawing, reading comics⚡️, and listening to music 🎶
+* **Favorite Subject in School:** Science🧪 and then anything that relates to tech
+* ** 
 
